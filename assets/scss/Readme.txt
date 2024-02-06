@@ -1,0 +1,1 @@
+This propeties belong to hillside charitable foundation.
